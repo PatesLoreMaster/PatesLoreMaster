@@ -11,7 +11,7 @@ You've landed on a profile that celebrates one thing and one thing only:
 
 ## 🍽️ Today’s Mood: Al Dente
 
-![Spaghetti Carbonara](https://images.unsplash.com/photo-1603133872878-684f208fbf9e?auto=format&fit=crop&w=800&q=80)
+![Spaghetti Carbonara](https://www.galbani.be/wp-content/uploads/2020/06/spaghetti-a-la-carbonara.jpg)
 
 Whether it's:
 - Creamy **carbonara**
@@ -35,7 +35,7 @@ Pasta waits patiently in boiling water to become its true self — and so do we.
 
 ## 📸 Pasta Aesthetic of the Week
 
-![Penne Arrabbiata](https://images.unsplash.com/photo-1617196038435-5e7c1f6c8f3b?auto=format&fit=crop&w=800&q=80)
+![Penne Arrabbiata](https://cache.marieclaire.fr/data/photo/w1000_ci/6t/meilleure-recette-penne-arrabbiata.jpg)
 
 Look at that shine. That confidence. That unapologetic richness.
 
@@ -55,6 +55,6 @@ Thanks for stopping by!
 This profile doesn’t push code. It pulls carbs.  
 And if you're a fellow noodler — we already speak the same language.
 
-![Trofie al Pesto](https://images.unsplash.com/photo-1627308595229-7830a5c91f9f?auto=format&fit=crop&w=800&q=80)
+![Trofie al Pesto](https://media-assets.lacucinaitaliana.it/photos/62d944374762933bfa003dd8/1:1/w_1600%2Cc_limit/trofie-al-pesto.jpg)
 
 > *Eat well. Laugh often. Love pasta.*
