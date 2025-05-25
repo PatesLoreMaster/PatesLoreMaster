@@ -2,7 +2,6 @@
 
 > “Everything you see, I owe to pasta.” – Sophia Loren
 
-Hello, internet traveler!  
 You've landed on a profile that celebrates one thing and one thing only:
 
 ## **PASTA.**
