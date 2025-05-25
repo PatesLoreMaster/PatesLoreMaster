@@ -52,7 +52,6 @@ Look at that shine. That confidence. That unapologetic richness.
 ## 🤌 Ciao for Now
 
 Thanks for stopping by!  
-This profile doesn’t push code. It pulls carbs.  
 And if you're a fellow noodler — we already speak the same language.
 
 ![Trofie al Pesto](https://media-assets.lacucinaitaliana.it/photos/62d944374762933bfa003dd8/1:1/w_1600%2Cc_limit/trofie-al-pesto.jpg)
